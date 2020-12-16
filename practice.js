@@ -1,0 +1,1 @@
+//Have quiet time.....Seek first the kingdom of God and His righteousness and all these things will be added to you. Matthew 6:33
